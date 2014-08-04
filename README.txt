@@ -1,0 +1,6 @@
+
+//README.txt
+
+Trololololololololololololololololololololololololololololololololololololololololololololololololololololololololololololololololololololololololololololololololololololloloololololololololololololololololololololololololololololo
+Also this is a repo for Codemaker. So...yeah.
+This is a magical thing that saves work n stuff.
